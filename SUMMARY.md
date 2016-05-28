@@ -1,3 +1,4 @@
+![](As CRONICAS DOS IRREVERENTES.png)
 # Sumario
 
 * [Um Breve Prologo](README.md)
