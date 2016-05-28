@@ -10,7 +10,10 @@
    
    Considerados por todos como o irmão fundador, Renan foi o escolhido pelos deuses inexistentes para ser o eximio originatário do maior grupo do mundo para seus integrantes e o motivo no qual esse livro foi criado, o XXT. Uma pessoa simples, discreta, cômica e confiavel, será sempre lembrado como um dos irmãos mais indispensaveis durante nossa falsa lenda interna. 
 
-###Frases Memoraveis
+
+=========================================================================
+
+   ###Frases Memoraveis
 
 > Tava aqui calculando a parabola pra sua mãe cair de boca no meu pau; 
 > 
@@ -19,6 +22,7 @@
 > 
 > Cala a boca seu idiota otário escroto fedido, sua mae te viu depois que te deu a luz e te achou tão feio que jogou o feto fora e criou a placenta; 
 
+=========================================================================
 
 ###Gustavo - O Menino Que Acreditava Na Estrela Da Sorte
   
