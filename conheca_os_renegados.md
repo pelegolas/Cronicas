@@ -11,8 +11,6 @@
    Considerados por todos como o irmão fundador, Renan foi o escolhido pelos deuses inexistentes para ser o eximio originatário do maior grupo do mundo para seus integrantes e o motivo no qual esse livro foi criado, o XXT. Uma pessoa simples, discreta, cômica e confiavel, será sempre lembrado como um dos irmãos mais indispensaveis durante nossa falsa lenda interna. 
 
 
-   ###Frases Memoraveis
-
 > "Tava aqui calculando a parabola pra sua mãe cair de boca no meu pau"; 
 > 
 > "Se ta fodido comigo se fizer isso mlk"; 
@@ -27,7 +25,6 @@
   
   Possuindo em seu livro de contuda a sinceridade e a confiança, Gustavo é considerado por todos como o caçula do grupo e um irmão no qual todos podem se voltar se prescisar de carona até pra BH. Dono de uma lingua enorme e de um coração maior ainda, Pepe será sempre lembrado no coração de todos nós como um dos membros mais irreverentes e inconfundivelmente divertidos de todo o livro aparentemente relevante. 
   
-  ###Frases Memoraveis
   
 > "Por ela eu pegava até AIDS";
 > 
@@ -45,13 +42,14 @@
    
    Dono de uma alma maior que seu cabelo e sua barba juntos, Davi é considerado como o Sex Symbol democraticamente eleito dos aqui descritos. Se por algum acaso uma menina que você quer chegar está acompanhada com alguma amiga de beleza duvidosa, ele é o Pokemon certo pro duelo. Companheiro insubstituivel em sua essência, sua presença sempre confirmada em qualquer evento não importa o lugar(Leia o capitulo "Eloi Mendes") e seu carisma natural no improviso fazem dele uma pessoa inigualavel e necessária pra que qualquer saida de casa seja memorável.
    
-   ###Frases Memoraveis
    
 > "Comia ela até meu pau afinar";
 > 
 > "Se a gente der as mãos e fazer um circulo ainda não da pra simular o rombo no cu dessa vagabunda";
 > 
 > "Parece completamente plausível";
+
+###Vinicius - O Noia Ultraromântico
 
 
 
