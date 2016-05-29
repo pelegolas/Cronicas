@@ -51,6 +51,12 @@
 
 ###Vinicius - O Noia Ultraromântico
 
+###Ramos - O Dono do Hall Das Faces
+
+###Dias - O Chewbacca
+
+###Luca - O Arrumador de Esquemas Fresco
+
 
 
 
