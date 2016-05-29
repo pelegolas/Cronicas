@@ -14,4 +14,5 @@
 * [Capitulo X - O Dia em que o Ramos Marcou um Gol](capitulo_x_-_o_dia_em_que_o_ramos_marcou_um_gol.md)
 * [Capitulo XI - As Mulheres](capitulo_xi_-_as_mulheres.md)
 * [Capitulo XII - O Grande Livro de Dilemas do XXT](capitulo_xii_-_o_grande_livro_de_dilemas_do_xxt.md)
+* Capitulo XIII - Peranzi Stars GG
 
