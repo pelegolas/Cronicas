@@ -9,5 +9,5 @@
 * [Capitulo V - "Me Ajuda com Essa Aí, Vai"](capitulo_v_-_me_ajuda_com_essa_ai,_vai.md)
 * [Capitulo VI - O Mundo de Sophia](capitulo_vi_-_o_mundo_de_sophia.md)
 * [Capitulo VII - A Terra Mística de Paraguaçu](capitulo_vii_-_a_terra_mistica_de_paraguacu.md)
-* Capitulo VIII - A Exímia Arte do Gorfo
+* [Capitulo VIII - A Exímia Arte do Gorfo](capitulo_viii_-_a_eximia_arte_do_gorfo.md)
 
