@@ -11,5 +11,5 @@
 * [Capitulo VII - A Terra Mística de Paraguaçu](capitulo_vii_-_a_terra_mistica_de_paraguacu.md)
 * [Capitulo VIII - A Exímia Arte do Gorfo](capitulo_viii_-_a_eximia_arte_do_gorfo.md)
 * [Capitulo IX - A Liga das Lendas](capitulo_ix_-_a_liga_das_lendas.md)
-* Capitulo X - O Dia em que o Ramos Marcou um Gol
+* [Capitulo X - O Dia em que o Ramos Marcou um Gol](capitulo_x_-_o_dia_em_que_o_ramos_marcou_um_gol.md)
 
