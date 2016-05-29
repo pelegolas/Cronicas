@@ -39,7 +39,29 @@
 
 ###Davi - O Menino da Goiabeira
   
-   Conhecido por ser o rapaz mais lindo desse livro inteiro até o presente momento da escrita, Davi Ferreira, carinhosamente apelidado de Goiaba, é dono do topete mais inconfundivel de todo o país. Conhecido por essas terras como BH, o imigrante duplo é conhecido por ser o menino no qual tem os piores esquemas ja registrados e também as maiores cagadas ja registradas pelos aqui presentes
+   Conhecido por ser o rapaz mais lindo de toda a composição dessa obra até o presente momento da escrita, Davi Ferreira, carinhosamente apelidado de Goiaba, é dono do topete mais inconfundivel de todo o país. Conhecido por essas terras como BH, o imigrante duplo é lastimavelmente identificavel por ser o menino no qual tem os piores esquemas ja registrados e também as maiores cagadas ja capturadas pelos aqui presentes nesse conjunto de crônicas insuficientes para um premio mais suficientes para uns risos. É altamente referenciavel no quesito de perder mulher, até mesmo para seus irmãos(Leia o capítulo "O Mundo de Sophia"), sendo que possui uma capacidade de conversa com o sexo oposto semelhante a do Akinator.  
+    
+   Tendo em seu curriculo de histórico feminino nomes de peso que vão desde Ana Paula Taves(Boa Teteus), Julia Martins e Sabrina Marinho até Duda Machado, Goiaba é um eximio guerreiro batalhador e sobrevivente de diversas câmaras de execucões de virjões. Considerado por todos como o melhor Thresh vesgo do seu bairro, o mesmo jamais arregou a um duelo não importa onde seja(É serio, ele da engage em todo lugar, é repugnante). Possui cantadas como "Vamos nos Divertir" e "Bora bater um Papo?" em seu inventário e também marcas de batalha com Julia Gandini e [Insira esquema ruim do Luca aqui]. É um cego crente de que as mulheres que a gente vai arrumar pra ele são faceis ou maiores de 14 anos de idade(inocente). Possui o orgulho de ser um dos sobreviventes do grupo que nunca deu PT ou ficou altamente transtornado até a presente data. Também é irmão do ser mais macho que vai aparecer nesse livro inteiro(serio, ela tem mais testosterona no sangue do que a gente tudo junto).
+   
+   Dono de uma alma maior que seu cabelo e sua barba juntos, Davi é considerado como o Sex Symbol democraticamente eleito dos aqui descritos. Se por algum acaso uma menina que você quer chegar está acompanhada com alguma amiga de beleza duvidosa, ele é o Pokemon certo pro duelo. Companheiro insubstituivel em sua essência, sua presença sempre confirmada em qualquer evento não importa o lugar(Leia o capitulo "Eloi Mendes") e seu carisma natural no improviso fazem dele uma pessoa inigualavel e necessária pra que qualquer saida de casa seja memorável.
+   
+   ###Frases Memoraveis
+   
+> "Comia ela até meu pau afinar";
+> 
+> "Se a gente der as mãos e fazer um circulo ainda não da pra simular o rombo no cu dessa vagabunda";
+> 
+> "Parece completamente plausível";
+
+
+
+
+
+
+
+
+
+
 
   
 
