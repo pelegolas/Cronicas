@@ -37,7 +37,11 @@
 
 
 
+###Davi - O Menino da Goiabeira
+  
+   Conhecido por ser o rapaz mais lindo desse livro inteiro até o presente momento da escrita, Davi Ferreira, carinhosamente apelidado de Goiaba, é dono do topete mais inconfundivel de todo o país. Conhecido por essas terras como BH, o imigrante duplo é conhecido por ser o menino no qual tem os piores esquemas ja registrados e também as maiores cagadas ja registradas pelos aqui presentes
 
+  
 
 
 
