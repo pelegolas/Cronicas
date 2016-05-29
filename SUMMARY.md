@@ -10,5 +10,5 @@
 * [Capitulo VI - O Mundo de Sophia](capitulo_vi_-_o_mundo_de_sophia.md)
 * [Capitulo VII - A Terra Mística de Paraguaçu](capitulo_vii_-_a_terra_mistica_de_paraguacu.md)
 * [Capitulo VIII - A Exímia Arte do Gorfo](capitulo_viii_-_a_eximia_arte_do_gorfo.md)
-* Capitulo IX - A Liga das Lendas
+* [Capitulo IX - A Liga das Lendas](capitulo_ix_-_a_liga_das_lendas.md)
 
