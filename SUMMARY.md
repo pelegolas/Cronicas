@@ -5,4 +5,5 @@
 * [Capitulo I - O Paranoico Semi-Fracassado](chapter1.md)
 * Capitulo II - O Primeiro Pedaço de Papel
 * Capitulo III - Poker
+* Capitulo IV - Reflexões de uma Ressaca a Noite
 
