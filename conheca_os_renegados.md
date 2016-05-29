@@ -13,14 +13,37 @@
 
    ###Frases Memoraveis
 
-> Tava aqui calculando a parabola pra sua mãe cair de boca no meu pau; 
+> "Tava aqui calculando a parabola pra sua mãe cair de boca no meu pau"; 
 > 
-> Se ta fodido comigo se fizer isso mlk; 
+> "Se ta fodido comigo se fizer isso mlk"; 
 > 
-> Cala a boca seu idiota otário escroto fedido, sua mae te viu depois que te deu a luz e te achou tão feio que jogou o feto fora e criou a placenta; 
+> "Cala a boca seu idiota otário escroto fedido, sua mae te viu depois que te deu a luz e te achou tão feio que jogou o feto fora e criou a placenta"; 
 
 
 ###Gustavo - O Menino Que Acreditava Na Estrela Da Sorte
+  Em sua essencia basica, Gustavo Rodrigues, caronhosamente apelidado por sua mãe como Peranzi(nome de macho forte né, pode falar), possui uma mistura irônica de Hastad com Harry Styles e Gaguinho do Looney Tunes. Com tais icônicas caracteristicas, Gaguinho é fortemente conhecido por ser o ser menos evoluido em quesitos escolares em meio aos aqui descritos. Para uma ilustração básica, o mesmo uma vez namorou uma batata vesga por um período de tempo altamente consideravel e incomodante aos redores presentes, chamando a mesma de "Estrela da Sorte"(é, eu também acho isso ridiculo). Agressor de mães assumido, é procurado pelas empresas telefônicas da região por ter gastado mais de 1900 reais em cretidos virtuais muito bem aplicados, sendo que este até mesmo se tornou acionista da Rito Gomes.  
+  
+  Cara de pau na definição de dicionário da palavra, Pepe tem a habilidade de esquecer sua gagueira constante com uma presença de um ser do sexo oposto(geralmente é do sexo feminino). Transtornado por natureza, é altamente conhecido por ser um exímio campo de testes para bebidas de procedência duvidosas e provador de copos alheios. Dizem as lendas que foram encontradas mutações radioativas em seu gorfo que  esta espalhado em quintais e banheiros por todo o sul de Minas. Famoso por seu inesquecivel Draven com Translocação Arcana no D, tem uma facilidade muitissimamente alta de entregar qualquer partida mais rapido que qualquer motoboy ou Sedex. Dizer até mesmo que conseguiu acabar com 10 partidas de um amigo seu em um período de tempo de menos de 2 dias, que homem! Dono da jaqueta mais cara de todo o livro, é um menino engomadinho que usa touca em plenos 27ºC pra não desarrumar o cabelo. Vergonhoso. 
+  
+  Possuindo em seu livro de contuda a sinceridade e a confiança, Gustavo é considerado por todos como o caçula do grupo e um irmão no qual todos podem se voltar se prescisar de carona até pra BH. Dono de uma lingua enorme e de um coração maior ainda, Pepe será sempre lembrado no coração de todos nós como um dos membros mais irreverentes e inconfundivelmente divertidos de todo o livro aparentemente relevante. 
+  
+  ###Frases Memoraveis
+  
+> "Por ela eu pegava até AIDS";
+> 
+> "Ta fraco, bota mais!";
+> 
+> "Ah mais essa eu pego, vai so esperando";
+
+
+
+
+
+
+
+
+
+
 
   
   
