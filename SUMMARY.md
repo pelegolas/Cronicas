@@ -6,4 +6,5 @@
 * Capitulo II - O Primeiro Pedaço de Papel
 * Capitulo III - Poker
 * Capitulo IV - Reflexões de uma Ressaca a Noite
+* Capitulo V - "Me Ajuda com Essa Aí, Vai"
 
