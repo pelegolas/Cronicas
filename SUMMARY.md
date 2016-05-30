@@ -18,4 +18,5 @@
 * [Capitulo XIV - As Colônias Remanescentes (Eloi Mendes/Três Pontas)](capitulo_xiv_-_as_colonias_remanescentes_eloi_mend.md)
 * [Capitulo XV - UVPG](capitulo_xv_-_uvpg.md)
 * [Capitulo XVI - Casa do Dias](capitulo_xvi_-_casa_do_dias.md)
+* Capitulo XVII - Campanha de Todos os Santos
 
