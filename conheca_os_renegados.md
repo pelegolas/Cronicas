@@ -2,7 +2,7 @@
 
    Davi, Pedro, Renan, Vinicius, Gustavo, Luis Felipe, Otávio e Luca. Esse são os confrades nos quais compõem os promóridios do caos doméstico ilusório. Insignificantes para muitos, imortais para os aqui citados, necessitavam de estatuas em sua homenagem, no mínimo uma marca de cigarros baratos para deixar de heranças para seus projetos de seres humanos não planejados. Aqui você vai conhecer brevemente cada um deles. Aproveite !
    
-### Renan - O Dropador De Doces e Paranoias
+## Renan - O Dropador De Doces e Paranoias
 
   Figurativamente chamado em seu primordio ao chegar em Varginha como imigrante, Renan Paiva atende por vários nomes como Robert, Ronan e principalmente Menino Da Coleira. Conhecido por sua capacidade de criar xingamentos levemente criativos(O que lhe rendeu o título de maior rager da historia do LoL nesse livro), Napão é campeão mundial em capacidade de transformação de pessoa social a otaku assumido em tempo recorde. Dono do cachorro mais boiola/fofo do seu bairro, Renan consegue aproveitar de sua fertil imaginação para conseguir imaginar as possibilidades de mais de 1001 formas de como qualquer relacionamento seu pode dar errado e possivelmente acabar em morte, o que lhe rendeu o carinhoso apelido de "DOENTE PARANOICO". 
    
@@ -10,6 +10,7 @@
    
    Considerados por todos como o irmão fundador, Renan foi o escolhido pelos deuses inexistentes para ser o eximio originatário do maior grupo do mundo para seus integrantes e o motivo no qual esse livro foi criado, o XXT. Uma pessoa simples, discreta, cômica e confiavel, será sempre lembrado como um dos irmãos mais indispensaveis durante nossa falsa lenda interna. 
 
+###Frases Memoraveis
 
 > "Tava aqui calculando a parabola pra sua mãe cair de boca no meu pau"; 
 > 
@@ -18,15 +19,16 @@
 > "Cala a boca seu idiota otário escroto fedido, sua mae te viu depois que te deu a luz e te achou tão feio que jogou o feto fora e criou a placenta"; 
 
 
-###Gustavo - O Menino Que Acreditava Na Estrela Da Sorte
+##Gustavo - O Menino Que Acreditava Na Estrela Da Sorte
   Em sua essencia basica, Gustavo Rodrigues, caronhosamente apelidado por sua mãe como Peranzi(nome de macho forte né, pode falar), possui uma mistura irônica de Hastad com Harry Styles e Gaguinho do Looney Tunes. Com tais icônicas caracteristicas, Gaguinho é fortemente conhecido por ser o ser menos evoluido em quesitos escolares em meio aos aqui descritos. Para uma ilustração básica, o mesmo uma vez namorou uma batata vesga por um período de tempo altamente consideravel e incomodante aos redores presentes, chamando a mesma de "Estrela da Sorte"(é, eu também acho isso ridiculo). Agressor de mães assumido, é procurado pelas empresas telefônicas da região por ter gastado mais de 1900 reais em cretidos virtuais muito bem aplicados, sendo que este até mesmo se tornou acionista da Rito Gomes.  
   
   Cara de pau na definição de dicionário da palavra, Pepe tem a habilidade de esquecer sua gagueira constante com uma presença de um ser do sexo oposto(geralmente é do sexo feminino). Transtornado por natureza, é altamente conhecido por ser um exímio campo de testes para bebidas de procedência duvidosas e provador de copos alheios. Dizem as lendas que foram encontradas mutações radioativas em seu gorfo que  esta espalhado em quintais e banheiros por todo o sul de Minas. Famoso por seu inesquecivel Draven com Translocação Arcana no D, tem uma facilidade muitissimamente alta de entregar qualquer partida mais rapido que qualquer motoboy ou Sedex. Dizer até mesmo que conseguiu acabar com 10 partidas de um amigo seu em um período de tempo de menos de 2 dias, que homem! Dono da jaqueta mais cara de todo o livro, é um menino engomadinho que usa touca em plenos 27ºC pra não desarrumar o cabelo. Vergonhoso. 
   
   Possuindo em seu livro de contuda a sinceridade e a confiança, Gustavo é considerado por todos como o caçula do grupo e um irmão no qual todos podem se voltar se prescisar de carona até pra BH. Dono de uma lingua enorme e de um coração maior ainda, Pepe será sempre lembrado no coração de todos nós como um dos membros mais irreverentes e inconfundivelmente divertidos de todo o livro aparentemente relevante. 
   
-  
-> "Por ela eu pegava até AIDS";
+  ###Frases Memoraveis
+
+> > "Por ela eu pegava até AIDS";
 > 
 > "Ta fraco, bota mais!";
 > 
@@ -34,7 +36,7 @@
 
 
 
-###Davi - O Menino da Goiabeira
+##Davi - O Menino da Goiabeira
   
    Conhecido por ser o rapaz mais lindo de toda a composição dessa obra até o presente momento da escrita, Davi Ferreira, carinhosamente apelidado de Goiaba, é dono do topete mais inconfundivel de todo o país. Conhecido por essas terras como BH, o imigrante duplo é lastimavelmente identificavel por ser o menino no qual tem os piores esquemas ja registrados e também as maiores cagadas ja capturadas pelos aqui presentes nesse conjunto de crônicas insuficientes para um premio mais suficientes para uns risos. É altamente referenciavel no quesito de perder mulher, até mesmo para seus irmãos(Leia o capítulo "O Mundo de Sophia"), sendo que possui uma capacidade de conversa com o sexo oposto semelhante a do Akinator.  
     
@@ -42,6 +44,7 @@
    
    Dono de uma alma maior que seu cabelo e sua barba juntos, Davi é considerado como o Sex Symbol democraticamente eleito dos aqui descritos. Se por algum acaso uma menina que você quer chegar está acompanhada com alguma amiga de beleza duvidosa, ele é o Pokemon certo pro duelo. Companheiro insubstituivel em sua essência, sua presença sempre confirmada em qualquer evento não importa o lugar(Leia o capitulo "Eloi Mendes") e seu carisma natural no improviso fazem dele uma pessoa inigualavel e necessária pra que qualquer saida de casa seja memorável.
    
+   ###Frases Memoraveis
    
 > "Comia ela até meu pau afinar";
 > 
