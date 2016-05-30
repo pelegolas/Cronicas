@@ -53,7 +53,7 @@
 > "Parece completamente plausível";
 
 ###Vinicius - O Noia Ultraromântico
-  
+  Carinhosamente designado pelo autor desse livro como o mais provavel cafetão/dono de boca entre os aqui descritos, Vinicius Alves é considerado como o usuário de susbtâncias duvidosas mais recorrente dos presenetes e ainda assim apenas apresentou uma única incidencia de PT em toda a sua vida(Leia o capitulo "A exímia arte do Gorfo"). Mesmo com todos esses atributos diferenciaveis, ViniBoy ainda consegue ser um ultraromântico em suas fases periódicas em que encontra uma princesa de aba reta que gostaria de utilizar coisas ilícitas como seus exímios e conhecidos paieros estragados. Conhecido por também não te rmuita sorte, quase sofreu uma fatalidade em Campanha ao tentar achar um banheiro público, lastimavel.
 
 ###Ramos - O Dono do Hall Das Faces
 
