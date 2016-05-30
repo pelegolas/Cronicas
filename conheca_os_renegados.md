@@ -50,6 +50,7 @@
 > "Parece completamente plausível";
 
 ###Vinicius - O Noia Ultraromântico
+  
 
 ###Ramos - O Dono do Hall Das Faces
 
@@ -57,7 +58,7 @@
 
 ###Luca - O Arrumador de Esquemas Fresco
 
-
+###Pedro - 
 
 
 
