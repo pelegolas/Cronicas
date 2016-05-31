@@ -69,10 +69,6 @@
 
 
 
-
-
-
-
 ###Ramos - O Dono do Hall Das Faces
 
 ###Dias - O Chewbacca
