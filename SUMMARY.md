@@ -24,4 +24,5 @@
 * [Capitulo XX - Los 12 Tocos del Burro](capitulo_xx_-_los_12_tocos_del_burro.md)
 * [Capitulo XXI - Cortes e Mais Cortes](xxii_-_cortes_e_mais_cortes.md)
 * [Capítulo XXIII - O Epílogo Mais Triste de Todos](capitulo_xxi_-_o_epilogo_mais_triste_de_todos.md)
+* Capitulo XXII - Role Playing Life
 
