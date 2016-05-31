@@ -73,7 +73,7 @@
 
 ###Dias - O Chewbacca
 
-###Luca - O Arrumador de Esquemas Fresco
+###Luca - O Arrumador de Esquemas Peculiares
 
 ###Pedro - 
 
