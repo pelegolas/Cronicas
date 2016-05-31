@@ -21,4 +21,5 @@
 * [Capitulo XVII - Campanha de Todos os Santos](capitulo_xvii_-_campanha_de_todos_os_santos.md)
 * [Capitulo XVIII - Cervejadas](capitulo_xviii_-_cervejadas.md)
 * [Capitulo XIX - A Ruiva](capitulo_xix_-_a_ruiva.md)
+* Capitulo XX - Los 12 Tocos del Burro
 
