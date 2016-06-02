@@ -69,7 +69,7 @@
 
 
 
-##Luis Felipe Ramos - O Dono do Hall Das Faces
+##Luis Felipe Ramos - O Dono do Halls Das Faces
   Formalmente conhecido como Luis Felipe apenas e unicamente por sua família, RAMKS é um pretendende a ser Miss Bumbum Universo algum dia em sua vida. Crítico na natureza pura da prática, Raminho ja achou defeitos em basicamente todas as práticas peculiares feitas pelos aqui descritos, desde o uso de substâncias de procedência duvidosa até como a famosa estratégia "Cheirin de Sex" pode dar errado(Sejamos Francos, ela nunca da errado). Dono do lendário Hall das Faces(Esse mesmo que você ta pensando, o do GoT), Ramos tem seus olhos perfurados frequentemente em homenagem a tal título. 
    
    Outro transtornado por natureza, Xirecão entra com louvores na lista de PTzeiros dos aqui presentes nesse livro, tendo seu gorfo espalhado em locais desse incrível sul de Minas. Herdeiro e príncipe regente do Fantástico Cubículo de Narnia, Ramos consegue liberar o espaço de sua casa sempre que necessário(Atitude mais que nobre). Aluno de famigerada UVPG, Ramos foi(e ainda é) um dos melhores estudantes que ja passaram pela mesma, conseguindo marcar até o presente momento 2 gols desde o início de seu aprendizado(Apesar das frequentes perdas de média e das constantes e infinitas, quase irritantes consultas a seus professores). Bodybuilder por natureza, trocou o GoT e o YuGiOh por alteres e barras fixas, tudo isso ao som de aberturas de Naruto e videos motivacionais do incível Kleber Bambam. Possui algumas datas comemorativas anuais em seu calendário, como o dia do Orochimaru e o dia de mandar o Marcii segurar o pagode.
