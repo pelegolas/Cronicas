@@ -18,6 +18,20 @@
 > 
 > "Tava aqui procurando no Google, mas não achei nenhum resultado de quem pediu sua opinião sabe..."; 
 
+> "Ela so mandou um emoji de coração...Acho que ela me odeia"
+
+
+> "Pode vir aqui me bater se nao gostou, Rua Aristides Paiva, nº330, Vila Paiva, Varginha-MG"
+
+
+> "QUEM FOI QUE BANIU ZED ??? VAI TOMAR NO CU SEU RESTO DE ABORTO DO CARALHO!"
+
+
+
+
+
+
+
 
 ##Gustavo Rodrigues - O Menino Que Acreditava Na Estrela Da Sorte
   Em sua essencia basica, Gustavo Rodrigues, caronhosamente apelidado por sua mãe como Peranzi(nome de macho forte né, pode falar), possui uma mistura irônica de Hastad com Harry Styles e Gaguinho do Looney Tunes. Com tais icônicas caracteristicas, Gaguinho é fortemente conhecido por ser o ser menos evoluido em quesitos escolares em meio aos aqui descritos. Para uma ilustração básica, o mesmo uma vez namorou uma batata vesga por um período de tempo altamente consideravel e incomodante aos redores presentes, chamando a mesma de "Estrela da Sorte"(é, eu também acho isso ridiculo). Agressor de mães assumido, é procurado pelas empresas telefônicas da região por ter gastado mais de 1900 reais em cretidos virtuais muito bem aplicados, sendo que este até mesmo se tornou acionista da Rito Gomes.  
