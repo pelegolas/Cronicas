@@ -18,13 +18,8 @@
 > 
 > "Tava aqui procurando no Google, mas não achei nenhum resultado de quem pediu sua opinião sabe..."; 
 
-> "Ela so mandou um emoji de coração...Acho que ela me odeia"
-
-
 > "Pode vir aqui me bater se nao gostou, Rua Aristides Paiva, nº330, Vila Paiva, Varginha-MG"
 
-
-> "QUEM FOI QUE BANIU ZED ??? VAI TOMAR NO CU SEU RESTO DE ABORTO DO CARALHO!"
 
 
 
