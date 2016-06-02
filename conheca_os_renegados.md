@@ -2,7 +2,7 @@
 
    Davi, Pedro, Renan, Vinicius, Gustavo, Luis Felipe, Otávio e Luca. Esse são os confrades nos quais compõem os promóridios do caos doméstico ilusório. Insignificantes para muitos, imortais para os aqui citados, necessitavam de estatuas em sua homenagem, no mínimo uma marca de cigarros baratos para deixar de heranças para seus projetos de seres humanos não planejados. Aqui você vai conhecer brevemente cada um deles. Aproveite !
    
-## Renan - O Dropador De Doces e Paranoias
+## Renan Paiva - O Dropador De Doces e Paranoias
 
   Figurativamente chamado em seu primordio ao chegar em Varginha como imigrante, Renan Paiva atende por vários nomes como Robert, Ronan e principalmente Menino Da Coleira. Conhecido por sua capacidade de criar xingamentos levemente criativos(O que lhe rendeu o título de maior rager da historia do LoL nesse livro), Napão é campeão mundial em capacidade de transformação de pessoa social a otaku assumido em tempo recorde. Dono do cachorro mais boiola/fofo do seu bairro, Renan consegue aproveitar de sua fertil imaginação para conseguir imaginar as possibilidades de mais de 1001 formas de como qualquer relacionamento seu pode dar errado e possivelmente acabar em morte, o que lhe rendeu o carinhoso apelido de "DOENTE PARANOICO". 
    
@@ -19,7 +19,7 @@
 > "Cala a boca seu idiota otário escroto fedido, sua mae te viu depois que te deu a luz e te achou tão feio que jogou o feto fora e criou a placenta"; 
 
 
-##Gustavo - O Menino Que Acreditava Na Estrela Da Sorte
+##Gustavo Rodrigues - O Menino Que Acreditava Na Estrela Da Sorte
   Em sua essencia basica, Gustavo Rodrigues, caronhosamente apelidado por sua mãe como Peranzi(nome de macho forte né, pode falar), possui uma mistura irônica de Hastad com Harry Styles e Gaguinho do Looney Tunes. Com tais icônicas caracteristicas, Gaguinho é fortemente conhecido por ser o ser menos evoluido em quesitos escolares em meio aos aqui descritos. Para uma ilustração básica, o mesmo uma vez namorou uma batata vesga por um período de tempo altamente consideravel e incomodante aos redores presentes, chamando a mesma de "Estrela da Sorte"(é, eu também acho isso ridiculo). Agressor de mães assumido, é procurado pelas empresas telefônicas da região por ter gastado mais de 1900 reais em cretidos virtuais muito bem aplicados, sendo que este até mesmo se tornou acionista da Rito Gomes.  
   
   Cara de pau na definição de dicionário da palavra, Pepe tem a habilidade de esquecer sua gagueira constante com uma presença de um ser do sexo oposto(geralmente é do sexo feminino). Transtornado por natureza, é altamente conhecido por ser um exímio campo de testes para bebidas de procedência duvidosas e provador de copos alheios. Dizem as lendas que foram encontradas mutações radioativas em seu gorfo que  esta espalhado em quintais e banheiros por todo o sul de Minas. Famoso por seu inesquecivel Draven com Translocação Arcana no D, tem uma facilidade muitissimamente alta de entregar qualquer partida mais rapido que qualquer motoboy ou Sedex. Dizer até mesmo que conseguiu acabar com 10 partidas de um amigo seu em um período de tempo de menos de 2 dias, que homem! Dono da jaqueta mais cara de todo o livro, é um menino engomadinho que usa touca em plenos 27ºC pra não desarrumar o cabelo. Vergonhoso. 
@@ -36,7 +36,7 @@
 
 
 
-##Davi - O Menino da Goiabeira
+##Davi Ferreira - O Menino da Goiabeira
   
    Conhecido por ser o rapaz mais lindo de toda a composição dessa obra até o presente momento da escrita, Davi Ferreira, carinhosamente apelidado de Goiaba, é dono do topete mais inconfundivel de todo o país. Conhecido por essas terras como BH, o imigrante duplo é lastimavelmente identificavel por ser o menino no qual tem os piores esquemas ja registrados e também as maiores cagadas ja capturadas pelos aqui presentes nesse conjunto de crônicas insuficientes para um premio mais suficientes para uns risos. É altamente referenciavel no quesito de perder mulher, até mesmo para seus irmãos(Leia o capítulo "O Mundo de Sophia"), sendo que possui uma capacidade de conversa com o sexo oposto semelhante a do Akinator.  
     
@@ -52,7 +52,7 @@
 > 
 > "Parece completamente plausível";
 
-##Vinicius - O Noia Ultraromântico
+##Vinicius Alves - O Noia Ultraromântico
   Carinhosamente designado pelo autor desse livro como o mais provavel cafetão/dono de boca entre os aqui descritos, Vinicius Alves é considerado como o usuário de susbtâncias duvidosas mais recorrente dos presenetes e ainda assim apenas apresentou uma única incidencia de PT em toda a sua vida(Leia o capitulo "A exímia arte do Gorfo"). Mesmo com todos esses atributos diferenciaveis, ViniBoy ainda consegue ser um ultraromântico em suas fases periódicas em que encontra uma princesa de aba reta que gostaria de utilizar coisas ilícitas como seus exímios e conhecidos paieros estragados. Conhecido por também não ter muita sorte, quase sofreu uma fatalidade em Campanha ao tentar achar um banheiro público, lastimavel.
    
    Professor de abordagens na exímia Universidade Varginhense de Pegar Garotas(Leia o capitulo "UFPG"), Vinicius Vayne Mechanics tem a habilidade de fumar palavras do além e transforma-las em cantadas simples e eficientes. Também tem a capacidade de resistir a qualquer tentação por uma ideologia ou coisa que goste/considere correta, qualquer mesmo. (Serio, ele virou o rosto pra uma ruiva que queria beijar ele por ser fiel(Leia o capitulo "A Ruiva". Isso não se compra, ele é simplismente o melhor homem do mundo) Imigrante assumido das colonias que ficam ao arredor da toda-poderosa soberana Varginha, Vinicius e fortemente lembrado como o menino que pegou pelo menos uma menina de cada cidade do sul de Minas, sendo que algumas dessas cidades só possuiam um habitante e tal habitante era a dita cuja no qual teve seus labios fumados por esse rapaz. Conhecido por sua Vayne e Lee Sin, são os únicos dois campeões que ele sabe jogar e carregar o Pepe ao mesmo tempo(Feito quase impossível em meios comuns). Jamelão de profissão, possui em seu currículo as campanhas #ASophiaEhDeTodoMundo e #DaUmaChanceProViniJunqueira. 
@@ -69,9 +69,25 @@
 
 
 
-###Ramos - O Dono do Hall Das Faces
+##Luis Felipe Ramos - O Dono do Hall Das Faces
+  Formalmente conhecido como Luis Felipe apenas e unicamente por sua família, RAMSK é um pretendende a ser Miss Bumbum Universo algum dia em sua vida. Crítico na natureza pura da prática, Raminho ja achou defeitos em basicamente todas as práticas peculiares feitas pelos aqui descritos, desde o uso de substâncias de procedência duvidosa até como a famosa estratégia "Cheirin de Sex" pode dar errado(Sejamos Francos, ela nunca da errado). Dono do lendário Hall das Faces(Esse mesmo que você ta pensando, o do GoT), Ramos tem seus olhos perfurados frequentemente em homenagem a tal título. 
+   
+   Outro transtornado por natureza, Xirecão entra com louvores na lista de PTzeiros dos aqui presentes nesse livro, tendo seu gorfo espalhado em locais desse incrível sul de Minas. Herdeiro e príncipe regente do Fantástico Cubículo de Narnia, Ramos consegue liberar o espaço de sua casa sempre que necessário(Atitude mais que nobre). Aluno de famigerada UVPG, Ramos foi(e ainda é) um dos melhores estudantes que ja passaram pela mesma, conseguindo marcar até o presente momento 2 gols desde o início de seu aprendizado(Apesar das frequentes perdas de média e das constantes e infinitas, quase irritantes consultas a seus professores). Bodybuilder por natureza, trocou o GoT e o YuGiOh por alteres e barras fixas, tudo isso ao som de aberturas de Naruto e videos motivacionais do incível Kleber Bambam. Possui algumas datas comemorativas anuais em seu calendário, como o dia do Orochimaru e o dia de mandar o Marcii segurar o pagode.
+   
+   Titular em qualquer banco de reservas de rolê, Ramos é aquele menino hesitante e que desconfia das práticas, mais pouco a pouco o mesmo está se adaptando a vida noturna nas Boates Azuis dessa região, se transformando de otaku a pinguço. Com um espírito e senso comico maior que sua bunda, Ramos é e sempre será uma das partes mais importantes dessa irmandade. 
+   
+   ###Frases Memoraveis
+   
+> "Exijo um julgamento por combate"
+> 
+> "Não faz isso velho, vai da bosta, to falando"
+> 
+>"NARUTOOOOOOOOO, SASUKEEEEEEEEEEEEEEEEEE" 
 
-###Dias - O Chewbacca
+
+
+
+##Otávio Dias Dalla Rosa - O Chewbacca
 
 ###Luca - O Arrumador de Esquemas Peculiares
 
