@@ -16,7 +16,7 @@
 > 
 > "SASUKEEEEEEEEEE"; 
 > 
-> "Cala a boca seu idiota otário escroto fedido, sua mae te viu depois que te deu a luz e te achou tão feio que jogou o feto fora e criou a placenta"; 
+> "Tava aqui procurando no Google, mas não achei nenhum resultado de quem pediu sua opinião sabe..."; 
 
 
 ##Gustavo Rodrigues - O Menino Que Acreditava Na Estrela Da Sorte
