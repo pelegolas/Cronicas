@@ -14,7 +14,7 @@
 
 > "Tava aqui calculando a parabola pra sua mãe cair de boca no meu pau"; 
 > 
-> "Se ta fodido comigo se fizer isso mlk"; 
+> "SASUKEEEEEEEEEE"; 
 > 
 > "Cala a boca seu idiota otário escroto fedido, sua mae te viu depois que te deu a luz e te achou tão feio que jogou o feto fora e criou a placenta"; 
 
@@ -82,7 +82,7 @@
 > 
 > "Não faz isso velho, vai da bosta, to falando"
 > 
->"NARUTOOOOOOOOO, SASUKEEEEEEEEEEEEEEEEEE" 
+>"NARUTOOOOOOOOO"
 
 
 
